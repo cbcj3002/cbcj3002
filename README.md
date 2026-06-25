@@ -1,1 +1,1 @@
-## 🫐 Serving up fresh web apps and sweet data analytics. Always hunting for fruitful insights. 🫐
+## 🫐 Creating the sweetest, freshest web apps and data analytics. Always hunting for fruitful insights. 🫐
